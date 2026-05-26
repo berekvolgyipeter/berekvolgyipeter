@@ -23,4 +23,4 @@
 ## Find me
 
 - 💼 [LinkedIn](https://linkedin.com/in/peterberekvolgyi)
-- 📍 Budapest, Hungary · CET
+- 📍 Budapest, Hungary
